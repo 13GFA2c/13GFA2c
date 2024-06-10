@@ -8,4 +8,5 @@ Meu nome é Gabrielle Araujo
 
 - ### Você pode entrar em contato comigo
 
-- gabrielle.faraujo189@gmail.com
+-00001104094137sp@al.educaca.sp.gov.br
+
